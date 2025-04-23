@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Frenzy-sudo
 - 👀 I’m interested in Web3,Crypto & Analytics.
-- 🌱 I’m currently learning data analysis & Data science.
+- 🌱 I’m currently a professional in data analysis & web3 Decentralised Finance.
 - 💞️ I’m looking to collaborate on data analysis,web3 & Moderation projects.
 - 📫 How to reach me : josephkiiza01@gmail.com
 - 😄 Pronouns: He/Him
